@@ -4,6 +4,8 @@ Hope u guys like it hehe :>
 
 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3
 
+Make sure u have internet conn kkkkk
+
 _________________________________
 
 IG :
